@@ -1,3 +1,3 @@
 # Personal Portfolio
 
-Upcomming vibe-coding project
+Coming soon!
